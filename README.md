@@ -1,1 +1,3 @@
-# .github
+# *Your Regret Is Killing You. Forgive. | Shi Heng Yi’s Wisdom on Letting Go*
+## *Discover the life-changing power of forgiveness and letting go. Inspired by Shi Heng Yi, this webstory will guide you to release regret, heal deeply, and reclaim peace and purpose. Start your journey of forgiveness today. Release regret, heal from within, and experience real personal freedom.* [More details…](https://spiritualkhazaana.com/web-stories/your-regret-is-killing-you-forgive/)
+## #ShiHengYi #Regret #Forgiveness #LetGo #Healing #InnerPeace #EmotionalFreedom #SpiritualGrowth #LettingGo #Healing #SpiritualAwakening
